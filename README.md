@@ -1,7 +1,7 @@
 ### meinmarkdown
 # Introduction
 
-My name is Tazim Chowdhury, 
+My name is Tazim Chowdhury, and I am in 12th grade. One of my favorite books i have read is [Enders Game](https://en.wikipedia.org/wiki/Ender%27s_Game).
 
 # Playlist
 
