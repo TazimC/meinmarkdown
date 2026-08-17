@@ -5,7 +5,7 @@ My name is **Tazim Chowdhury,** and I am in 12th grade. I plan on going to Pierc
 
 One of my favorite books i have read is *[Enders Game](https://en.wikipedia.org/wiki/Ender%27s_Game).* I often read many books over the summer. Over the summer, I didn go anywhere far, but many relatives visited. They visited once in the beginning of summer break, and some more visited at the end of summer break.
 
-I have a few <ins>goals</ins> for this year. I want to <sup><small><small><small><small><small>hopefully</small></small></small></small></small></sup> get through the year without missing any assignments. I also want to find colleges to write to. My current idea is to go to [Pierce College](https://www.lapc.edu/) and transfer from there.
+I have a few <ins>goals</ins> for this year. I want to <sup><small>hopefully</small></sup> get through the year without missing any assignments. I also want to find colleges to write to. My current idea is to go to [Pierce College](https://www.lapc.edu/) and transfer from there.
 
 ## Images
 ![image of book](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQ7IOh-fi6_aX0Spzum8Rqx0_JHyKRlYqrJs9IhFHvEmw&s=10)
