@@ -19,7 +19,6 @@ I have a few <ins> goals</ins> for this year. I want to get through the year wit
 
 ![Silksong](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRaTRdHWtsIExwc2evbC91TkqRVrYIr4iiuIpv579wWDg&s=10)
 
-This is water
 ![Cup of water](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRxiPO9HAeXjriukPYmQBuztfPJvkKPvMkEjrhe5xJ_2Z-n0qbOj3jaQhvW&s=10)
 
 ![mourning dove](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRWQEYJUp0Ovycq5sRtK_O-_mYx4YEs_VlHxF5f8vEChIZkcNAAJRNoLgIC&s=10)
@@ -27,3 +26,7 @@ This is water
 ![Beach](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQhVrMrpbpyu39ep0T20CmC13A0-PPE_15sHSUAQvlbit98LXoVNPJY1vM&s=10)
 
 ![Squirrel](https://www.vetmed.wisc.edu/wp-content/uploads/2022/01/joshua-j-cotten-XQqbauEeors-unsplash-scaled.jpg)
+
+![Banana](https://nutritionsource.hsph.harvard.edu/wp-content/uploads/2018/08/bananas-1354785_1920-1024x683.jpg)
+
+![Rice](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSEg6IvWJuWUTyxBBX1vJjvXFS1Kp_H0xw65XNhVlL_JYZ6Z6c5EnCHVe6t&s=10)
